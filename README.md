@@ -1,4 +1,4 @@
-hi im dawgsin, currently learning how to code discord bots 
+hi im dawgsin, currently learning about UNITY.
 
 discord:dawg-san#5146
 
